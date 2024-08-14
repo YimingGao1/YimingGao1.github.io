@@ -78,10 +78,10 @@ COMMUNITY SERVICES
     
 SELECTED HONORS
 ======
-* 2023 | Meritorious Winner (H Award) in the Mathematical Contest in Modeling (MCM)
-* 2022 | First-Class Scholarship (Top 3% in the major)
-* 2022 | Second Prize in the Beijing Region of the National College Student Mathematics Competition
-* 2020 | Second Prize in the Anhui Provincial Physics Competition for Middle School Students
+* **Meritorious Winner (H Award) in the Mathematical Contest in Modeling (MCM), 2023**
+* **First-Class Scholarship (Top 3% in the major), 2022**
+* **Second Prize in the Beijing Region of the National College Student Mathematics Competition, 2022**
+* **Second Prize in the Anhui Provincial Physics Competition for Middle School Students, 2020**
 
 HOBBIES & SKILLS
 ======
